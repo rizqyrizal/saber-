@@ -1,0 +1,1 @@
+perkenalkan semua namaku rizal
